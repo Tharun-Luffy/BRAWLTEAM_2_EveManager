@@ -1,1 +1,0 @@
-# BRAWLTEAM_2_EveManager
